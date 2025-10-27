@@ -1,0 +1,2 @@
+# Garapen-inguruneak
+Gaapen-inguruneak
